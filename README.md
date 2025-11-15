@@ -254,5 +254,5 @@ echo "Rosara 5G: Take. Run. Own." > /media/usb/README.txt
 
 **Inshallah. Ara. Kiss. Vanish.**  
 **#RosaraBoss #K2KING #VeridianAegis**  
-**The tower is in your pocket.**# TheMafiaKiss5
+**The tower is in your pocket.**# TheMafiaKiss4
 #3035
